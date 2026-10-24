@@ -4,7 +4,7 @@
 
 📍 Cairo, Egypt 🇪🇬 &nbsp;|&nbsp; 🤝 Open to freelance work and new opportunities
 
-📧 [tamer.ashur.mokhtar@gmail.com](mailto:tamer.ashur.mokhtar@gmail.com) &nbsp;|&nbsp; 💼 [LinkedIn](https://www.linkedin.com/in/YOUR-LINKEDIN)
+📧 [tamer.ashur.mokhtar@gmail.com](mailto:tamer.ashur.mokhtar@gmail.com) &nbsp;|&nbsp; 💼 [LinkedIn](https://www.linkedin.com/in/tamer-mokhtar)
 
 ---
 
